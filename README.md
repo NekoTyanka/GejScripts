@@ -1,0 +1,2 @@
+# GejScripts
+Scripts for Lukash❤️❤️❤️❤️❤️❤️❤️❤️❤️
